@@ -25,6 +25,8 @@
 
     *** The urgency for accountability, punishment and regulatory creation;
 
+    *** Separating the chaff from the wheat;
+
     *** The information industry and the human alienation;
 
     *** The relationship about the covid and the policy of horror;
