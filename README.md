@@ -27,7 +27,9 @@
 
     *** Ridiculation of critical thinking and the resignation of the term negationism;
 
-    *** Why we need to talk about it.
+    *** Why we need to talk about it;
+
+    *** Human rights and other living beings rights.
 
 --> Why do I believe entrepreneurs and scientists have created and spread COVID (or the fear of COVID)?
 
