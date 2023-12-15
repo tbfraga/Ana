@@ -21,6 +21,8 @@
 
     *** The similarity between the symptoms of covid and the symptoms that are caused by the use of nanomaterials;
 
+    *** Invisibility of nanorobotic;
+
     *** The information industry and the human alienation;
 
     *** The relationship about the covid and the policy of horror;
