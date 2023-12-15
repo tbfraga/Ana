@@ -23,6 +23,8 @@
 
     *** Invisibility of nanorobotic;
 
+    *** The urgency for accountability, punishment and regulatory creation;
+
     *** The information industry and the human alienation;
 
     *** The relationship about the covid and the policy of horror;
